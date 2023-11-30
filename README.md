@@ -1,2 +1,4 @@
 # author_ber14
-Chemistry
+finding more for Taylor's law
+
+Cohen last
