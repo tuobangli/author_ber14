@@ -1,4 +1,1 @@
-# author_ber14
-finding more for Taylor's law
-
-Cohen last cors
+1-10 the clone number represent the exaxt number.
