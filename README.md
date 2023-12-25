@@ -1,1 +1,1 @@
-already entered Koptown EDC Hotel Kuala Lumpur, apply B-2 tomorrow 10.
+already entered Koptown EDC Hotel Kuala Lumpur, waiting for DS-2019. 16
