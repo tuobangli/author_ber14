@@ -1,1 +1,1 @@
-appeal for metabolic momentum.
+appeal for REDS
