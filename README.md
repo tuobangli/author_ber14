@@ -1,1 +1,1 @@
-Adding matrix dissimilarity
+matrix dissimilarity is safe
